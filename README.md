@@ -1,6 +1,6 @@
 ## hi
 
-no free time at the moment, email me <3
+no free time at the moment, but you can always email me
 
 
 <!--
